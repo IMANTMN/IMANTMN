@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Iman Tahamtan, UX Researcher and University Instructor.
+- 👋 Hi, I’m Iman Tahamtan, UX Researcher and University Lecturer.
 - 👀 I’m interested in ping pong, and wrestling.
 - 📫 How to reach me: iman.tahamtan@gmail.com
 
